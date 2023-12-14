@@ -21,7 +21,7 @@ Here are some ideas to get you started:
 
 - 📫 How to reach me **Budhiarishabh@gmail.com**
 
-- 📄 Know about my experiences [https://bit.ly/Budhia_Resume](https://bit.ly/Budhia_Resume)
+- 📄 Know about my experiences [https://bit.ly/Budhia_Resume](https://flowcv.com/resume/1mctiuri6o)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
