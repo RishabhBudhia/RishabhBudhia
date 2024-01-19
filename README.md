@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **Budhiarishabh@gmail.com**
 
-- 📄 Know about my experiences [Rishabh_Budhia_Resume](https://drive.google.com/file/d/1iW5yU3AxymDgyNOovhq0qOdykjTpMHXG/view?usp=drive_link)
+- 📄 Know about my experiences [Rishabh_Budhia_Resume](https://drive.google.com/file/d/1rMQxUNqDgar4XUOpRMMgaYkGzgM9_l2g/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
